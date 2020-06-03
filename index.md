@@ -10,4 +10,4 @@
 # [Bangladesh Labour Law docs](https://www.facebook.com/notes/cseeee-jobs-in-bangladesh/bangladesh-labor-law-references/1552060524822969/)
 
 # [Group's FB Page](https://www.facebook.com/cse.eee.bangladesh/)
-# [Contact up](mailto:cse.eee.jobs.bd@gmail.com)
+# [Mail to us](mailto:cse.eee.jobs.bd@gmail.com)
